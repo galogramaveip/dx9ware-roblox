@@ -1,5 +1,9 @@
 
 ![thumbnail](https://github.com/user-attachments/assets/1ca543b7-1794-40d9-9943-01e830678e49)
+## <p align="center">Completely Undetectable ROBLOX®️ MultiHack, brought to you by Cult of Intellect</p>
+
+
+**<p align="center">DX9WARE is the future of hacking on ROBLOX. Being 100% undetectable and packed with a truckload of features, we aim to provide you with the best performance cheat on the market. DX9WARE comes equipped with everything you need to dominate in games in ROBLOX. Just have a look below and let it speak for itself.</p>**
 
 # Features
 - **Features list**:
